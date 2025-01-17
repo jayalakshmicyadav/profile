@@ -1,4 +1,4 @@
-# profile
+# Profile
 <div align="center">
 <img src="![WhatsApp Image 2025-01-18 at 3 44 10 AM](https://github.com/user-attachments/assets/0b63e00d-8fb8-4d15-94ae-aed99de0de4c)
 " align="center" style="width: 100%" />
